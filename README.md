@@ -1,1 +1,0 @@
-# main-vanity-sniper
